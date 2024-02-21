@@ -1,0 +1,5 @@
+- 👋 Hi, I’m mohammad or you can call me mono
+- 👀 I’m interested in memes ,some computer science and video games
+- 🌱 I’m currently learning how to be cool and some computer science 
+- 📫 How to reach me      - on telegram   https://t.me/mo_no_6 -
+- ⚡ Fun fact: I am a MITE student
